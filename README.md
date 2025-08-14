@@ -1,1 +1,1 @@
-Just trying to run some small programs :)
+https://www.linkedin.com/in/dylan-gehl/
