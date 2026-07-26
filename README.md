@@ -1,3 +1,1 @@
-https://www.linkedin.com/in/dylan-gehl/
-
-www.winterns.com
+Learning about business, engineering, and science
